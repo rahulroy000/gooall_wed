@@ -1,1 +1,1 @@
-it self besed project 🥲 means own design and dev -> based on humans center desgn 
+it self besed project 🥲 means own design and dev -> based on humans center design 
